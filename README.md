@@ -1,1 +1,1 @@
-è una esercitazione 
+è una esercitazione assolutamente bella
